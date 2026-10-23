@@ -2,7 +2,7 @@
 
 **Gemini 4 Argon Desktop** is Google frontier. gemini 4 argon, $2/$10 intro, 1M output, coding, cyber, Fairwind.
 
-<img width="500" height="500" alt="images1" src="https://github.com/user-attachments/assets/f70d8e41-ad83-4e9e-a2d0-586a0428d693" />
+<img width="200" height="200" alt="images1" src="https://github.com/user-attachments/assets/f70d8e41-ad83-4e9e-a2d0-586a0428d693" />
 
 <img width="1692" height="930" alt="images2" src="https://github.com/user-attachments/assets/cf14ee4b-96a4-414a-a63f-749082361e3d" />
 
